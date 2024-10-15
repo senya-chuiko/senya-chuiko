@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @senya-chuiko
+- 👀 I’m interested in math
+- 🌱 I’m currently learning math and computer sciences at SPbU
+- 💞️ I’m looking to collaborate on research in math
+- 📫 How to reach me on Instagram senya.chuiko
+- 😄 Pronouns: He
+- ⚡ Fun fact: I am super fan of basketball
